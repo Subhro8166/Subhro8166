@@ -7,13 +7,13 @@
 
 - 🔭 I’m currently working on **Automation & the Economy: Uncovering the Macro Impact**
 
-- 👯 I’m looking to collaborate on **Gender, Environment and Monetary Economics.**
+- 👯 I’m looking to collaborate on **Labor markets, Environment and Monetary Economics.**
 
 - 👨‍💻 All of my projects are available at [https://scholar.google.co.in/scholar?hl=en&as_sdt=0%2C5&q=subhrasil+chingri&btnG=&oq=subhras](https://scholar.google.co.in/scholar?hl=en&as_sdt=0%2C5&q=subhrasil+chingri&btnG=&oq=subhras)
 
 - 📫 How to reach me **subhrasilchingri@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Ukjk8UDKL2pbgE6AgwRF_wQfbjH4LtzH/view?usp=sharing](https://drive.google.com/file/d/1Ukjk8UDKL2pbgE6AgwRF_wQfbjH4LtzH/view?usp=sharing)
+- 📄 Know about my experiences [(https://sites.google.com/view/subhrasil-chingri)](https://sites.google.com/view/subhrasil-chingri)
 
 - ⚡ Fun fact **Research is my adventure—I’m always lost in the details, happily boring to some, but deeply fascinating to me!**
 
